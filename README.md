@@ -1,0 +1,4 @@
+- 👋 Hey, This is Syed Khizer ali
+- 👀 I’m interested in Project Development/UIUX/FrontEnd
+- 🌱 I’m currently learning Computer Engineering/ACCP PRIME 2.O
+- 📫 Catch me on email or phone no Khizer.ali404@gmail.com / 03473116493
